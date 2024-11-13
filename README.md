@@ -1,0 +1,1 @@
+# youtube-2024-11-13-ano-anterior-ajustado
